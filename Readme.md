@@ -1,0 +1,1 @@
+https://github.com/nicecarrot/Mole-Slayer/issues/1#issue-1276168008
